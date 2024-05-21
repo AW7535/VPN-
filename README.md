@@ -12,4 +12,5 @@ https://vpnifyapp.com/
 
 
 開啟這個連結後掃到最底然後下載google
+Open this link, scroll to the bottom and download google
 https://www.google.com/intl/en_uk/chrome/
