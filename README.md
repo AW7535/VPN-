@@ -7,7 +7,7 @@ https://surfshark.com/zh-hk/deal/brand?coupon=fullsecurity&gad_source=1&gclid=Cj
 
 
 2.Vpnify vpn
-完全免費 free
+完全免費  it is free
 https://vpnifyapp.com/
 
 3. Nord VPN 
